@@ -1,0 +1,1 @@
+## Christmas is coming and so is the snow. Along with the Christmas spirit, there is always the cold winter that comes along with it. Here is a great way to warm up your day with a minty holidy spin!
